@@ -1,2 +1,2 @@
 # fluffy-journey
-summa
+we are in guest lecture session
